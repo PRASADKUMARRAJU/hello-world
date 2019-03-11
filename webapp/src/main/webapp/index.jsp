@@ -1,4 +1,3 @@
-hello this is PRASAD KUMAR RAJU first test of tomcat
+THIS IS PRASAD KUMAR RAJU CAME FORM CHITTOOR DIST 
+SO I WANT JOB ON BASIS OF AWS PLATFORM SO I NEED 
 
-
-nnm                        nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
