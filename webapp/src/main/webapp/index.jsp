@@ -1,3 +1,1 @@
-I WANT TO DO THE JOB IN AWS DOMAIN &&&&
-very soon i have to do this work******
-anuska is my first crush but i missed her%%%%
+$$$$$$"WORK HARD IN SILENCE LET YOUR SUCCESS BE YOUR NOICE"$$$$$$
