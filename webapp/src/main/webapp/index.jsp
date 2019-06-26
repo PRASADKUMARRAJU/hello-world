@@ -1,1 +1,2 @@
 $$$$$$"WORK HARD IN SILENCE LET YOUR SUCCESS BE YOUR NOICE"$$$$$$
+________________THIS IS MY ALLTIME FAVOURITE QUOTE_______________
