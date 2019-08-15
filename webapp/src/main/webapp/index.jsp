@@ -1,2 +1,2 @@
-#################################### HAPPY FRINDSHIP DAY 
+#################################### HAPPY INDEPENDENCE DAY & HAPPY RAKSHA BHANDHAN 
 ####################################
